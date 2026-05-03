@@ -1,5 +1,6 @@
-<img width="487" height="588" alt="Captura de ecrã 2026-05-03 224805" src="https://github.com/user-attachments/assets/70ed7c8d-4f17-4ece-85c0-9f5517a35f28" />
+<img width="476" height="672" alt="Captura de ecrã 2026-05-03 231009" src="https://github.com/user-attachments/assets/3eca8969-7c6c-4bda-bd1b-f3ef2ce22f7c" />
 
 
-https://github.com/user-attachments/assets/b4be119e-56ae-4ad5-bfaf-b8a39470973f
+
+https://github.com/user-attachments/assets/3af1b9e2-00b8-4c48-ae27-736d3436685b
 
